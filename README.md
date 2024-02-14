@@ -1,0 +1,1 @@
+Strzalka dla utrzymania autostrady
